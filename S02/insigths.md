@@ -14,4 +14,4 @@
 
 **Ambos entrevistados necesitan** que la tecnología mantenga un equilibrio entre la justicia y la emoción del fútbol **porque** reconocen que el VAR ayuda a tomar mejores decisiones. **Hoy lo resuelven** aceptando su uso durante los partidos, **pero les falla en** que las pausas prolongadas interrumpen el ritmo del juego y afectan la experiencia como espectadores.
 
-**Evidencia:** Oscar: "A veces esa justicia tarda tanto que le quita la magia al partido." Ángela: "Cuando el partido se detiene por varios minutos pierdo un poco el interés."
+**Evidencia:** Oscar: "A veces esa justicia tarda tanto que le quita la magia al partido."
